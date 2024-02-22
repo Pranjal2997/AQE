@@ -24,7 +24,7 @@ Send us a mail on
 - Ayush Soni
 - Chinmay Kalegaonkar
 - Pankaj Chauhan
-- Prajan Sarin
+- Pranjal Sarin
 - Renu Kumari
 - Shikhar Gupta
 - Soumen Kaity
